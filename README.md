@@ -1,2 +1,0 @@
-# atomun-tarihsel-gelisimi
-
